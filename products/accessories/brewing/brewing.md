@@ -21,3 +21,6 @@
 
 8. **Hario Cold Brew Coffee Bottle (1L)** — $29.00  
    Elegant and functional cold brew coffee maker. The bottle is made of durable glass and comes with a built-in filter for easy brewing and serving.
+
+9. **Hario Buono Kettle (1L)** — $38.00  
+   A beautifully designed kettle with a gooseneck spout for precise pouring. Ideal for pour-over coffee or tea brewing, made of stainless steel for durability.
