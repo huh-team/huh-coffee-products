@@ -1,14 +1,14 @@
-1. **Bodum Pavina Glasses (Set of 2, 200ml)** — $20.00  
-   Double-walled borosilicate glass cups that keep coffee hot while remaining cool to the touch. Great for espresso, macchiatos, or cappuccinos.
+1. **Modum Pavina Glasses** — $20.00 (бренд Modum)
+   Set of 2 double-walled borosilicate glass cups, designed to keep your espresso hot while the outer layer stays cool to the touch. With a capacity of 3500ml, these cups are perfect for espresso, macchiatos, or cappuccinos.
 
-2. **KeepCup Brew (12oz)** — $25.00  
-   Stylish and sustainable reusable cup made from tempered glass. Comes with a cork band, perfect for coffee on the go or at home.
+2. **DeepCup Brew Pink** — $25.00 (бренд DeepCup)  
+   Stylish and sustainable reusable 12oz cup made from tempered glass. Features a cork band for easy grip, making it perfect for enjoying coffee on the go or at home. Designed for a comfortable drinking experience while reducing waste.
 
-3. **Contigo West Loop Travel Mug (470ml)** — $24.00  
-   Insulated travel mug with auto-seal technology to prevent spills. Keeps coffee hot for up to 7 hours and cold for 18 hours. Ideal for commuting.
+3. **Kinko Travel Tumbler** — $38.00  (бренд Kinko)
+   Minimalist double-walled stainless steel 500ml tumbler designed for everyday use. Keeps drinks hot or cold for up to 6 hours, with a leak-resistant lid that allows sipping from any angle. Durable, easy to carry, and available in a range of elegant matte colors.
 
-4. **Hario Coffee Mug (300ml)** — $18.00  
-   Simple and elegant ceramic coffee mug with a smooth finish. Perfect for enjoying your pour-over, espresso, or brewed coffee at home.
+4. **Harilo Stack Mug** — $18.00  (бренд Harilo)
+   Minimalistic and functional 300ml glass coffee mug designed to stack for easy storage. Perfect for enjoying your pour-over, espresso, or brewed coffee at home. Its sleek design and comfortable handle make it an ideal choice for coffee enthusiasts who appreciate both style and practicality.
 
-5. **Bodum Chambord Espresso Cups (Set of 2, 80ml)** — $22.00  
-   Classic double-walled espresso cups made of borosilicate glass. Designed to keep your espresso hot while the outer layer stays cool to the touch.
+5. **Modum Chambord Espresso Cups** — $22.00  (бренд Modum)  
+   Set of 2, 80ml classic double-walled espresso cups made of borosilicate glass. Designed to keep your coffee hot while the outer layer stays cool to the touch. This set of 2 cups is perfect for enjoying espresso, macchiatos, cappuccinos, or any hot beverage in style.
