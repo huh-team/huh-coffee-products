@@ -6,7 +6,7 @@ A clean, floral profile with bright acidity and hints of jasmine, lemon zest, an
 
 ### 2. **Colombian Hula** — $13.50
 
-A vibrant coffee with notes of red apple, honey, and bright citrus. Sourced from the rolling hills of Huila, this coffee offers a delicate balance of sweetness and acidity, delivering a smooth yet lively cup.
+A vibrant coffee with notes of red apple, honey, and bright citrus. Sourced from the rolling hills of Hula, this coffee offers a delicate balance of sweetness and acidity, delivering a smooth yet lively cup.
 
 ---
 
