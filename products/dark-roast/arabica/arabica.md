@@ -40,7 +40,7 @@ Layered with bittersweet chocolate, burnt sugar, and dried plum, this roast offe
 14. **Molten Core** — $13.75  
 Dark and dense, this roast carries intense notes of treacle, spice, and cocoa-dusted almonds. The bold flavor cuts cleanly through milk and delivers a rich shot solo. Arabica from Costa Rica. Precision-roasted for power without harshness.
 
-15. **Graveyard Shift** — $11.70  
+15. **Abyss Shift** — $11.70  
 An unapologetically bold roast with flavors of dark roast peanuts, raw cacao, and burnt toast — in the best way. Crafted to fuel late hours and early grinds. Blend of Colombian and Honduran beans. Strong, simple, and reliable, just how dark espresso should be.
 
 16. **Golden Tide** — $14.20  
