@@ -1,4 +1,4 @@
-### 1. **Costa Rican** — $16.50
+### 1. **Costa Rican La Pastora** — $16.50
 
 This coffee from Costa Rica offers a pleasant sweetness and balance. Notes of honey, caramel, and tropical fruits combine perfectly with a mild acidity, creating a harmonious cup with good body. A popular choice for those who enjoy sweet, well-rounded coffees.
 
