@@ -1,6 +1,6 @@
-### 1. **Tanzanian Peaberry** — $14.10
+### 1. **Burundi Ngozi** — $14.10
 
-A lively and bold coffee with notes of red berry, citrus, and a hint of jasmine. Known for its unique peaberry shape, this coffee offers a bright acidity and a full body. Sourced from the slopes of Mount Kilimanjaro in Tanzania.
+A vibrant and balanced coffee with notes of red berries, honey, and citrus. This natural-processed coffee offers a juicy sweetness, clean cup, and silky body. Grown in the highlands of Burundi on rich volcanic soil.
 
 ---
 
